@@ -4,5 +4,5 @@
 
 💡 I’m interested on **both Frontend and Backend development**.  
 
-🩷> *“And now abideth faith, hope, charity, these three; but the greatest of these is charity.”*  
+🩷 *“And now abideth faith, hope, charity, these three; but the greatest of these is charity.”*  
 — 1 Corinthians 13:13 (KJV) ✨  
